@@ -1,4 +1,4 @@
-# Typeform Free Trial, Coupon Codes and Offers 2025
+# Typeform Coupon Codes 2025 (Discount and Offers)
 
 Typeform is a versatile online form and survey builder designed to create engaging, interactive, and user-friendly forms, quizzes, and surveys. Its primary purpose is to simplify data collection while enhancing user experience through conversational interfaces.
 
